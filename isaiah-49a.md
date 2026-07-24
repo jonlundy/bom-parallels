@@ -1,0 +1,3 @@
+# Isaiah 49:22 - 2 Nephi 29:2 (PARAPHRASE)
+
+22 Thus saith the Lord God Behold I will lift up mine hand to the Gentiles and set up my standard to the people and they shall bring thy sons in their arms and thy daughters shall be carried upon their shoulders
