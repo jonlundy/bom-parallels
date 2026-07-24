@@ -1,0 +1,7 @@
+# Isaiah 29:11–12 - 2 Nephi 27:15–19 (PARAPHRASE)
+
+11 And the vision of all is become unto you as the words of 
+
+a book that is sealed which men deliver to one that is learned saying Read this I pray thee and he saith I cannot for it is sealed
+
+12 And the book is delivered to him that is not learned saying Read this I pray thee and he saith I am not learned
