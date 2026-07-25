@@ -1,0 +1,3 @@
+# Isaiah 52:10 - 1 Nephi 22:10
+
+10 And I would my brethren that ye should know that all the kindreds of the earth cannot be blessed unless he shall make bare his arm in the eyes of the nations
