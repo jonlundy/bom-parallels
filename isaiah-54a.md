@@ -1,3 +1,3 @@
 # Isaiah 54:2 - Moroni 10:31 (PARAPHRASE)
 
-2 Enlarge the place of thy tent and let them stretch forth the curtains of thine habitations spare not lengthen thy cords and strengthen thy stakes
+31 And awake and arise from the dust O Jerusalem yea and put on thy beautiful garments O daughter of Zion and strengthen thy stakes and enlarge thy borders forever that thou mayest no more be confounded that the covenants of the Eternal Father which he hath made unto thee O house of Israel may be fulfilled

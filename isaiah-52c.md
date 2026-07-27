@@ -1,5 +1,7 @@
 # Isaiah 52:1–2 - Moroni 10:31 (PARAPHRASE)
 
-1 awake awake put on thy strength O Zion put on thy beautiful garments O Jerusalem the holy city for henceforth there shall no more come into thee the uncircumcised and the unclean
+31 and awake and arise from the dust O Jerusalem 
 
-2 Shake thyself from the dust arise and sit down O Jerusalem loose thyself from the bands of thy neck O captive daughter of Zion
+yea and put on thy beautiful garments 
+
+O daughter of Zion and strengthen thy stakes and enlarge thy borders forever that thou mayest no more be confounded that the covenants of the Eternal Father which he hath made unto thee O house of Israel may be fulfilled

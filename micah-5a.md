@@ -1,3 +1,5 @@
 # Micah 5:8 - 3 Nephi 16:14-15 (PARAPHRASE)
 
-8 And the remnant of Jacob shall be among the Gentiles in the midst of many people as a lion among the beasts of the forest as a young lion among the flocks of sheep who if he go through both treadeth down and teareth in pieces and none can deliver
+14 And I will not suffer my people, who are of the house of Israel to go through among them and tread them down saith the Father 
+
+15 But if they will not turn unto me and hearken unto my voice I will suffer them yea I will suffer my people O house of Israel that they shall go through among them and shall tread them down and they shall be as salt that hath lost its savor which is thenceforth good for nothing but to be cast out and to be trodden under foot of my people O house of Israel

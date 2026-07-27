@@ -1,3 +1,3 @@
 # Isaiah 52:7 - 1 Nephi 13:37 (PARAPHRASE)
 
-7 How beautiful upon the mountains are the feet of him that bringeth good tidings that publish peace that bringeth good tidings of good that publish salvation that saith unto Zion Thy God reigneth
+37 And blessed are they who shall seek to bring forth my Zion at that day for they shall have the gift and the power of the Holy Ghost and if they endure unto the end they shall be lifted up at the last day and shall be saved in the everlasting kingdom of the Lamb and whoso shall publish peace yea tidings of great joy how beautiful upon the mountains shall they be

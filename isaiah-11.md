@@ -10,7 +10,7 @@
 
 5 And righteousness shall be the girdle of his loins and faithfulness the girdle of his reins
 
-6 The wolf also shall dwell with the lamb and the leopard shall lie down with the kid and the calf and the young lion and the fatling together and a little child shall lead them
+6 The wolf also shall dwell with the lamb and the leopard shall lie down with the kid and the calf and the young lion and fatling together and a little child shall lead them
 
 7 And the cow and the bear shall feed their young ones shall lie down together and the lion shall eat straw like the ox
 
@@ -24,10 +24,10 @@
 
 12 And he shall set up an ensign for the nations and shall assemble the outcasts of Israel and gather together the dispersed of Judah from the four corners of the earth
 
-13 The envy also of Ephraim shall depart and the adversaries of Judah shall be cut off Ephraim shall not envy Judah and Judah shall not vex Ephraim
+13 The envy of Ephraim also shall depart and the adversaries of Judah shall be cut off Ephraim shall not envy Judah and Judah shall not vex Ephraim
 
-14 But they shall fly upon the shoulders of the Philistines toward the west they shall spoil them of the east together they shall lay their hand upon Edom and Moab and the children of Ammon shall obey them
+14 But they shall fly upon the shoulders of the Philistines towards the west they shall spoil them of the east together they shall lay their hand upon Edom and Moab and the children of Ammon shall obey them
 
-15 And the Lord shall utterly destroy the tongue of the Egyptian sea and with his mighty wind shall he shake his hand over the river and shall smite it in the seven streams and make men go over dry shod
+15 And the Lord shall utterly destroy the tongue of the Egyptian sea and with his mighty wind he shall shake his hand over the river and shall smite it in the seven streams and make men go over dry shod
 
-16 And there shall be an highway for the remnant of his people which shall be left from Assyria like as it was to Israel in the day that he came up out of the land of Egypt
+16 And there shall be a highway for the remnant of his people which shall be left from Assyria like as it was to Israel in the day that he came up out of the land of Egypt

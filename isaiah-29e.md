@@ -1,7 +1,13 @@
 # Isaiah 29:11–12 - 2 Nephi 27:15–19 (PARAPHRASE)
 
-11 And the vision of all is become unto you as the words of 
+15 After my seed and the seed of my brethren shall have dwindled in unbelief and shall have been smitten by the Gentiles yea after the Lord God shall have camped against them round about and shall have laid siege against them with a mount and raised forts against them and after they shall have been brought down low in the dust even that they are not yet the words of the righteous shall be written and the prayers of the faithful shall be heard and all those who have dwindled in unbelief shall not be forgotten
 
-a book that is sealed which men deliver to one that is learned saying Read this I pray thee and he saith I cannot for it is sealed
+16 For those who shall be destroyed shall speak unto them out of the ground and their speech shall be low out of the dust and their voice shall be as one that hath a familiar spirit for the Lord God will give unto him power that he may whisper concerning them even as it were out of the ground and their speech shall whisper out of the dust
 
-12 And the book is delivered to him that is not learned saying Read this I pray thee and he saith I am not learned
+17 For thus saith the Lord God They shall write the things which shall be done among them and they shall be written 
+
+and sealed up in a book and those who have dwindled in unbelief shall not have them for they seek to destroy the things of God
+
+18 Wherefore as those who have been destroyed have been destroyed speedily; and the multitude of their terrible ones shall be as chaff that passeth away yea thus saith the Lord God It shall be at an instant suddenly 
+
+19 And it shall come to pass that those who have dwindled in unbelief shall be smitten by the hand of the Gentiles

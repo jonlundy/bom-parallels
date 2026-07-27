@@ -1,3 +1,5 @@
 # Isaiah 49:22 - 1 Nephi 22:6 (PARAPHRASE)
 
-22 Thus saith the Lord God Behold I will lift up mine hand to the Gentiles and set up my standard to the people and they shall bring thy sons in their arms and thy daughters shall be carried upon their shoulders
+6 Nevertheless after they shall be nursed by the Gentiles and the Lord has lifted up his hand upon the Gentiles and set them up for a standard and their children have been carried in their arms and their daughters have been carried upon their shoulders
+
+behold these things of which are spoken are temporal for thus are the covenants of the Lord with our fathers and it meaneth us in the days to come and also all our brethren who are of the house of Israel

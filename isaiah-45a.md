@@ -1,3 +1,3 @@
 # Isaiah 45:18 - 1 Nephi 17:36 (PARAPHRASE)
 
-18 For thus saith the Lord that created the heavens God himself that formed the earth and made it he hath established it he created it not in vain he formed it to be inhabited I am the Lord and there is none else
+36 Behold the Lord hath created the earth that it should be inhabited and he hath created his children that they should possess it

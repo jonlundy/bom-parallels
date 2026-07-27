@@ -1,3 +1,3 @@
 # Isaiah 29:14 - 1 Nephi 22:8 (PARAPHRASE)
 
-14 Therefore behold I will proceed to do a marvelous work among this people even a marvelous work and a wonder for the wisdom of their wise men shall perish and the understanding of their prudent men shall be hid
+8 And after our seed is scattered the Lord God will proceed to do a marvelous work among the Gentiles which shall be of great worth unto our seed wherefore it is likened unto their being nourished by the Gentiles and being carried in their arms and upon their shoulders

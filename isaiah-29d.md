@@ -1,3 +1,3 @@
 # Isaiah 29:11 - 2 Nephi 26:17 (PARAPHRASE)
 
-11 And the vision of all is become unto you as the words of a book that is sealed which men deliver to one that is learned saying Read this I pray thee and he saith I cannot for it is sealed
+17 For thus saith the Lord God They shall write the things which shall be done among them and they shall be written and sealed up in a book and those who have dwindled in unbelief shall not have them for they seek to destroy the things of God

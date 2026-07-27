@@ -1,3 +1,3 @@
 # Isaiah 52:12 - 3 Nephi 21:29 (PARAPHRASE)
 
-10 The Lord hath made bare his holy arm in the eyes of all the nations and all the ends of the earth shall see the salvation of our God
+29 And they shall go out from all nations and they shall not go out in haste nor go by flight for I will go before them saith the Father and I will be their rearward

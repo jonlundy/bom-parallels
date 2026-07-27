@@ -1,3 +1,3 @@
 # Isaiah 29:13 - 2 Nephi 28:14 (PARAPHRASE)
 
-13 Wherefore the Lord said Forasmuch as this people draw near me with their mouth and with their lips do honour me but have removed their heart far from me and their fear toward me is taught by the precept of men
+14 They wear stiff necks and high heads yea and because of pride and wickedness and abominations and whoredoms they have all gone astray save it be a few who are the humble followers of Christ nevertheless they are led that in many instances they do err because they are taught by the precepts of men

@@ -1,3 +1,5 @@
 # Isaiah 49:22 - 1 Nephi 22:8 (PARAPHRASE)
 
-22 Thus saith the Lord God Behold I will lift up mine hand to the Gentiles and set up my standard to the people and they shall bring thy sons in their arms and thy daughters
+8 And after our seed is scattered the Lord God will proceed to do a marvelous work among the Gentiles which shall be of great worth unto our seed wherefore it is likened unto their being nourished by the Gentiles and 
+
+being carried in their arms and upon their shoulders

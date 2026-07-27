@@ -1,3 +1,3 @@
 # Micah 5:8 - Mormon 5:24 (PARAPHRASE)
 
-8 And the remnant of Jacob shall be among the Gentiles in the midst of many people as a lion among the beasts of the forest as a young lion among the flocks of sheep who if he go through both treadeth down and teareth in pieces and none can deliver
+24 Therefore repent ye and humble yourselves before him lest he shall come out in justice against you—lest a remnant of the seed of Jacob shall go forth among you as a lion and tear you in pieces and there is none to deliver

@@ -1,3 +1,3 @@
 # Isaiah 11:11 - 2 Nephi 29:1 (PARAPHRASE)
 
-11 And it shall come to pass in that day that the Lord shall set his hand again the second time to recover the remnant of his people which shall be left from Assyria and from Egypt and from Pathros and from Cush and from Elam and from Shinar and from Hamath and from the islands of the sea
+1 But behold there shall be many at that day when I shall proceed to do a marvelous work among them that I may remember my covenants which I have made unto the children of men that I may set my hand again the second time to recover my people which are of the house of Israel

@@ -1,3 +1,3 @@
 # Isaiah 5:26 - 2 Nephi 29:2 (PARAPHRASE)
 
-26 And he will lift up an ensign to the nations from far and will hiss unto them from the end of the earth and behold they shall come with speed swiftly
+2 And also that I may remember the promises which I have made unto thee Nephi and also unto thy father that I would remember your seed and that the words of your seed should proceed forth out of my mouth unto your seed and my words shall hiss forth unto the ends of the earth for a standard unto my people which are of the house of Israel

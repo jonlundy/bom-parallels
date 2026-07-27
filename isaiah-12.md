@@ -2,7 +2,7 @@
 
 1 And in that day thou shalt say O Lord I will praise thee though thou wast angry with me thine anger is turned away and thou comfortedst me
 
-2 Behold God is my salvation I will trust and not be afraid for the Lord Jehovah is my strength and my song he also is become my salvation
+2 Behold God is my salvation I will trust and not be afraid for the Lord Jehovah is my strength and my song he also has become my salvation
 
 3 Therefore with joy shall ye draw water out of the wells of salvation
 
